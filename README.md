@@ -1,0 +1,2 @@
+# cuck
+We are cucks
